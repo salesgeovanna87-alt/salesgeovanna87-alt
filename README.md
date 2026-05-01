@@ -4,7 +4,7 @@
 **💻Aprendendo a Programar **  
 - Atualmente sou estudade da Fundação Ji-cred, cursando anoite, Programação e desgner**.
 - Nasci no Brasil 🇧🇷.
-- Toco bateria, fasso teatro, curso infórmatica basica, treino basquete, faço aulas de taekwondo e arborise
+- Toco bateria, fasso teatro, curso infórmatica basica, treino basquete, faço aulas de taekwondo e arborize
 
 **🎯 Interests**  
 - Gostos de jogos, filmes (series, dorama, comedia e ação)
