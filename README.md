@@ -22,4 +22,5 @@ Coloque
 
 <img width="515" height="360" alt="sOsKi" src="https://github.com/user-attachments/assets/a13c1234-c5cd-497c-a077-1e02a84f8b9c" />
 
+<img width="673" height="617" alt="mini sasuke" src="https://github.com/user-attachments/assets/cf8f0364-cbb2-4933-a9b6-24103fb88c37" />
 
